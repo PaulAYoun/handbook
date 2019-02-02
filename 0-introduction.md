@@ -38,6 +38,9 @@ James was most recently a Senior Manager at a software company in the Profession
 
 According to myth and legend, our friend, The Yenicorn, was raised by a herd of Japanese unicorns in a mysterious other worldly… … world. She knows (as prophecy has foretold) that she has a very important part to play in the cryptocurrency community but is understandably a bit nervous and often lacks a bit of self-confidence (thus the helmet)  – but she wants to help people and do her very best!
 
+#### Paul Youn - Community Operations Specialist - [LinkedIn](https://www.linkedin.com/in/paul-youn-21986392/)
+
+Paul formerly taught Title I Elementary Education with a passion for teaching and academic success of at-risk students. Previously he taught in Seoul Korea and was recognized by the Seoul Office of Education as Teacher of the Year from 2012-2013. During his time in Korea, he had the opportunity to lead the photography for the Award-Winning Documentary The Drop Box. He presently serves to dedicate his talents to Yen.io to take amazing care of its awesome community.
 
 ## Extended Team
 
